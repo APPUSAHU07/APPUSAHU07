@@ -1,4 +1,4 @@
-- 👋 Hi, I’m APPUSAHU07
+- 👋 Hi, I’m APPU ANNAVEERAPPA
 - 👀 I’m interested in tech
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate with people who can teach me
